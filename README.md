@@ -1,1 +1,1 @@
-https://ayako0.github.io/timeline/
+https://ayako0.github.io/Timeline/
